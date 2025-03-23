@@ -8,4 +8,4 @@ One can play Rooftop Snipers unblocked against the computer, but it is better to
 ## Play
 Click the link below to play!
 
-[[https://3kh0.github.io/rooftop-snipers/](https://sobloxsy.com/playgame?id=8)]([https://3kh0.github.io/rooftop-snipers/](https://sobloxsy.com/playgame?id=8))
+[https://sobloxsy.com/playgame?id=8](https://sobloxsy.com/playgame?id=8)
